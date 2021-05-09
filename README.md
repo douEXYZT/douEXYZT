@@ -4,7 +4,7 @@ I'm 13 years old, I'm a gamer, I play a lot, primarily on PC, and I'm actually l
 
 I made this account primarily so I could collaborate with my friends, who are also interested in becoming developers, we like to call ourselves "Team Soul".
 
-I am (currently) not accepting any sort of collaborations with others as "Team Soul" is basically my main priority.
+I am (currently) not accepting any sort of collaborations with others as, not only am I VERY inexperienced and self-taught, but also "Team Soul" is basically my main priority at the moment. whether or not that changes in the future, time will decide.
 
 If anyone wants to contact me, for SOME reason, I have a discord account you may use, it's the most reliable method, so it's the only one I'll be including.
 
