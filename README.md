@@ -6,7 +6,7 @@ I made this account primarily so I could collaborate with my friends, who are al
 
 I am (currently) not accepting any sort of collaborations with others as "Team Soul" is basically my main priority.
 
-If anyone wants to contact me, I have a discord account you may use, it's the most reliable method, so it's the only one I'll be including.
+If anyone wants to contact me, for SOME reason, I have a discord account you may use, it's the most reliable method, so it's the only one I'll be including.
 
 EXYZT#6728
 
